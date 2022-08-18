@@ -1,0 +1,7 @@
+jfjfjfkfdhgfhgf
+fhfhfhfhf
+jhsdjafhkefjfkjfkjfnafkjjfjdhsfk
+djjdhfhfhfhf
+jfjfjfkfdhgfhgfjsgdgd
+kddjd
+clear
